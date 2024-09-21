@@ -1,4 +1,4 @@
-Hi, I’m @masterofthestrings 👋
+Hi, I’m @wicked-empire 👋
 
      I’m interested in technology, AI, health tech, and innovative solutions for enhancing daily life.
      I’m currently learning about cybersecurity, software development, and business strategy to bring my ideas to life.
